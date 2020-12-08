@@ -1,0 +1,1 @@
+Why I didn’t think of this earlier in the summer, when the my zucchini plant was putting out two zukes a day, I don’t know. But here it is, a veggie taco that combines the best of summer produce, that you can pull together in about 20 minutes or less!
